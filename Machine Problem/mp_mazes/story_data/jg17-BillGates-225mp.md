@@ -1,0 +1,1 @@
+CS 225mp accounts for 30 points in total. Bill Gates regarded that the mp is hard, so he planned not to do the mp.

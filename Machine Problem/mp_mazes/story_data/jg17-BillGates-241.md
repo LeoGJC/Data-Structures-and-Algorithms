@@ -1,0 +1,1 @@
+Bill Gates was confident in taking CS241, which is a course about system programming.

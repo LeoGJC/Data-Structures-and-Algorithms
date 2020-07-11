@@ -1,0 +1,1 @@
+CS 225exam accounts for 50 points in total. Bill Gates worked hard to prepare his exams in both theory and coding exams.

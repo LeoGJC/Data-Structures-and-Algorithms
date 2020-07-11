@@ -1,0 +1,1 @@
+CS 225lab accounts for 20 points in total. Bill Gates thought these points are easy to get.

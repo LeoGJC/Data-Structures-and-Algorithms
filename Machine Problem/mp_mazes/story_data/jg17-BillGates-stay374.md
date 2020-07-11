@@ -1,0 +1,1 @@
+Bill Gates decided to make effort to study CS374. However, at the end of the semester, he got C.

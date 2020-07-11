@@ -1,0 +1,1 @@
+With a little bit fear, Gates chose to try the Law major. After two years, he failed in all of his law courses and decided to quit in universiy. He decided to start a business.
